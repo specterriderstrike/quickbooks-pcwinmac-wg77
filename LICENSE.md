@@ -1,4 +1,4 @@
-# 
+# Top QuickBooks add-ons for Mac OS | Native QuickBooks add-ons for PC Windows. Featuring pdf encryption and mileage tracking — optimized for maximum performance on every platform.
 
 
 
